@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CherifYasmine2000
+- 👀 I’m interested in business computing, programming ...
+  - 🌱 I’m currently learning programming
+- 📫 How to reach me : mail me on cherifyasmeen@gmail.com
